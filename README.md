@@ -6,7 +6,7 @@ Bersyukur berarti juga sadar bahwa nikmat yang kita dapatkan bukan semata-mata h
 
 Selalu ada orang yang membantu bahkan tanpa sepengetahuan kita. Kita bisa sahur karena ada yang bangun lebih awal untuk memasak. Kita bisa berbuka puasa bersama menyantap hidangan yang disiapkan oleh saudara yang mungkin tidak kita kenal. Kita bisa beribadah dengan nyaman di masjid yang dibersihkan setiap hari. Anak-anak berbahagia di hari raya mendapatkan hadiah dan bermain bersama kakak-kakak yang baik.
 
-![Hadiah]("IMG_0840.jpeg")
+![Hadiah](IMG_0840.jpeg)
 
 Dan juga banyak yang mendoakan kita tanpa diminta. Doa-doa qunut di setiap tarawih meminta ampunan dan rahmat dari Allah swt untuk semua Muslim. Doa untuk saudara-saudara kita yang tertindas dan yang kesulitan. Doa anak untuk orang tuanya. Doa orang tua untuk anaknya. 
 
