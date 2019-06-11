@@ -1,4 +1,4 @@
-# Orang hebat selalu bilang dia beruntung. Orang yang beruntung sering bilang dia hebat. 
+# Jadilah seperti orang hebat yang selalu berkata dia beruntung.<br/>Jangan seperti orang beruntung yang merasa hebat
 
 Di akhir surat Ad-Duha Allah memerintahkan kita untuk menyatakan kesyukuran atas nikmatNya. "*Dan terhadap nikmat Tuhanmu hendaklah engkau nyatakan (dengan bersyukur).*" Berjumpa Ramadhan, berpuasa, beribadah, dan merayakan Eidul Fitri bersama keluarga dan masyarakat merupakan nikmat dan barokah luar biasa dari Allah swt. 
 
