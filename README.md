@@ -8,7 +8,7 @@ Selalu ada orang yang membantu bahkan tanpa sepengetahuan kita. Kita bisa sahur 
 
 ![](IMG_0840.jpeg)
 
-Dan juga banyak yang mendoakan kita tanpa diminta. Doa-doa qunut di setiap tarawih meminta ampunan dan rahmat dari Allah swt untuk semua Muslim. Doa untuk saudara-saudara kita yang tertindas dan yang kesulitan. Doa anak untuk orang tuanya. Doa orang tua untuk anaknya. Yang paling banyak membantu dan mendoakan tentunya adalah orang tua. Hampir lima tahun lalu di bulan ini, almarhum ayah saya meninggal. Saya merasakan kehilangan supporter yang kuat yang tanpa saya sadari membentuk cara berpikir dan kepribadian saya. Dalam setiap kebaikan yang kita lakukan ada peninggalan orang tua di dalamnya.
+Dan juga banyak yang mendoakan kita tanpa diminta. Doa-doa qunut di setiap tarawih meminta ampunan dan rahmat dari Allah swt untuk semua Muslim. Doa untuk saudara-saudara kita yang tertindas dan yang kesulitan. Doa anak untuk orang tuanya. Doa orang tua untuk anaknya. Yang paling banyak membantu dan mendoakan tentunya adalah orang tua. Hampir lima tahun lalu di bulan ini, almarhum ayah saya meninggal. Saya merasakan kehilangan supporter yang kuat yang tanpa saya sadari membentuk cara berpikir dan kepribadian saya. Dalam setiap kebaikan yang kita lakukan ada peninggalan orang lain di dalamnya.
 
 Nabi Muhammad saw kehilangan ayahnya sebelum beliau lahir. Beliau saw tidak pernah mengenal dekat ayahnya, tapi beliau malah beberapa kali kehilangan pengganti ayah ketika kehilangan kakek kemudian paman beliau. Allah swt berjanji memberi pengganti pelindung untuk anak yatim. Dan Rasulullah saw mendapatkan itu dari para sahabat beliau. 
 
@@ -26,4 +26,4 @@ Tentunya tidak semua usaha akan berjalan mulus. Tapi petunjuk dan bantuan Allah 
 
 *We stand on the shoulder of giants*. Kita tampak tinggi karena berdiri di atas gunung keberhasilan pendahulu kita. Capian kita sendiri sangatlah kecil dan tidak akan terlihat. Beberapa pendahulu bahkan sudah meninggalkan dunia ini. Hanya dengan rahmatNyalah, berdatangan dan muncul terus generasi baru dan pengganti. Kita terus mendoakan agar amalan mereka diterima oleh Allah swt dan meneruskan hasil perjuangan mereka sehingga menjadi amal jariyah yang tidak ada putus-putusnya. 
 
-Eid Mubarak! Di hari yang mulia ini kita ingat bahwa semua kebagiaan kita adalah karena berbagai keberuntungan yang diberikan Allah kepada kita melalui berbagai jalan dan perantara.
+Eid Mubarak! Di hari yang mulia ini kita ingat bahwa semua kebahagiaan kita adalah karena berbagai keberuntungan yang diberikan Allah kepada kita melalui berbagai jalan dan perantara.
